@@ -20,6 +20,10 @@ On Going Song :
 - TBA
 - TBA
 
+Setelah membaca ini, silahkan isi feedback
+Link Form Feedback : 
+https://forms.gle/4rWspHEmJGjAXUjZ9
+
 Regards
 
 fuadzqnr
